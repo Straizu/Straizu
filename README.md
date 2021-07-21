@@ -2,5 +2,5 @@
 - 👀 I’m interested in coding.
 - 🌱 I’m currently learning basic HTML nad HTML5.
 - 📫 How to reach me gfxstraizu@gmail.com be free to message me anywhere you want.
-- If you have any good websites to learn coding for free send them to my gmail please!
+- If you know any good websites to learn coding for free send them to my gmail please!
 - Have a great day!
